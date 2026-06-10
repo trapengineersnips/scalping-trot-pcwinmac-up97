@@ -1,4 +1,4 @@
-# 
+# نهائي scalping trading bot إضافات لـ Mac OS | مفتوح المصدر scalping trading bot إضافات لـ PC Windows. مع تحسين رسوم الغاز و أمن المفتاح الخاص — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
